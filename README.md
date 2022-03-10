@@ -1,1 +1,1 @@
-# Ha valahogy meg is találtad ezt a fájlt, Ne MÁSOLD LE szó szerint!!!!!!!
+# Ha valahogy meg is találtad ezt a projektet, Ne MÁSOLD LE szó szerint!!!!!!!
